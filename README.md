@@ -1,2 +1,2 @@
 # SFPCESwithSPEDLC
-Embracing Quality, Upholding Excellecne
+Embracing Quality, Upholding Excellence
